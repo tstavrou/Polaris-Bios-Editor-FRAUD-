@@ -1,1 +1,3 @@
-# Polaris-Bios-Editor-FRAUD-
+# Polaris-Bios-Editor-3 Pro FRAUD!
+
+You pay via BTC or ETH $65.00 at which point payment gateway times out after 30 minutes, you lose your Crypto payment and there is no software. when he has your wallet address now he knows which exchange you are with and will send you a text that your account has been compromised and needs immediate action when you click on text it takes you to whatever site he is impersonanting at which point he will get all your information and rob you. I have filed a fraud report with  FEDERAL TRADE COMMISSION. Friends be aware this guy will rob you.  https://mining-bios.eu/ this is his website, i have sent emails and opened a ticket on his site which does not work!
